@@ -17,3 +17,8 @@ segundo pull request
 
 
 colaborando
+
+
+Jordi Cid
+
+Colaborando 2
